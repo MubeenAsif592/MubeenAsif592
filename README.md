@@ -1,1 +1,1 @@
-Hey! My name is Mubeen Asif and i am a student of BSSE. 
+Hey! My name is Mubeen Asif and i am currently pursuing a Bachelor's degree in Software Engineering from Virtual University, enhancing my technical skills and exanding my knowledge in software development and engineering principles. 
